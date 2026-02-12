@@ -7,6 +7,7 @@
 🚀 Em busca da minha primeira experiência profissional na área da tecnologia
 
 📋 Compartilho aqui meus projetos acadêmicos e exercícios práticos!
+
 📫 **Vamos nos conectar?** 📧 anasilveiraantunes9@gmail.com  💼 [Meu LinkedIn](https://www.linkedin.com/in/ana-clara-silveira-2a57a3282)
 
 ### 🛠 
