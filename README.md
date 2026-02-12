@@ -1,13 +1,9 @@
  **Olá, sou a Ana Clara!**
 
 💻 **Analista e Desenvolvedora em formação** 
-
 🎓 Estudante do 5º semestre de Análise e Desenvolvimento de Sistemas
-
 🚀 Em busca da minha primeira experiência profissional na área da tecnologia.
-
 📋 Compartilho aqui meus projetos acadêmicos e exercícios práticos!
-
 📫 **Vamos nos conectar?** 📧 anasilveiraantunes9@gmail.com  💼 [Meu LinkedIn](https://www.linkedin.com/in/ana-clara-silveira-2a57a3282)
 
 ### 🛠 
