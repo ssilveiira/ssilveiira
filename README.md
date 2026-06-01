@@ -4,7 +4,7 @@
 
 🎓 Estudante do 5º semestre de Análise e Desenvolvimento de Sistemas
 
-🚀 Em busca da minha primeira experiência profissional na área da tecnologia
+🚀 Em busca de experiências profissionais na área da tecnologia
 
 📋 Compartilho aqui meus projetos acadêmicos e exercícios práticos!
 
